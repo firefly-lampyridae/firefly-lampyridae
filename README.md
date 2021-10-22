@@ -1,4 +1,5 @@
-### Hey! I'm [@tiangolo]
+### Hey! I'm a soft-body beetle.
+
 
 * Email : firefly.lampyridae.beam@outlook.com
 
@@ -28,4 +29,4 @@ You can find me on:
 * [Pastebin](https://pastebin.com/u/fireflylampyridae)
 * [Hackerrank](https://www.hackerrank.com/firefly_lampyri1)
 * [Gravatar](https://en.gravatar.com/fireflylampyridaebeam)
-* [Gitlab](https://gitlab.com/firefly.lampyridae.beam
+* [Gitlab](https://gitlab.com/firefly.lampyridae.beam)
