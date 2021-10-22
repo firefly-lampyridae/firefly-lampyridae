@@ -7,7 +7,7 @@ You can find me on:
 
 * [Instagram](https://www.instagram.com/fireflylampyridae/)
 * [Twitter](https://twitter.com/FLampyridae)
-* [Discord] (https://discord.gg/BjA6eEJNFa)
+* [Discord](https://discord.gg/BjA6eEJNFa)
 * [Facebook](https://www.facebook.com/profile.php?id=100074331510977)
 * [Youtube](https://www.youtube.com/channel/UCdn8E8Fb47jx1YfC7RvoXYg)
 * [Reddit](https://www.reddit.com/user/FireflyLampyridae)
